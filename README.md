@@ -5,4 +5,4 @@ hint: morse code
 
 
 
-plano é o seguinte, com a pensão que irei receber eu tentarei dobrar o dinheiro e comprar as peças pro meu pc gamer, caso isto não de certo eu irei apenas juntar o dinheiro e comprar as peças ao longo do tempo. ( o mais rapido possivel. )
+The plan is as follows, with the pension I will receive I will try to double the money and buy parts for my gamer pc, if this does not work out I will just save the money and buy the parts over time. ( ASAP. )
